@@ -20,7 +20,7 @@ If you are experiencing snoring and breathing problems, take your sleep apnea te
 Obstructive sleep apnea can cause a number of adverse effects including daytime sleepiness, difficulty in focus and problem-solving in school and work, disturbed sleep and weight gain. But many people with sleep apnea don’t even know they have sleep apnea because of its early signs such as loud snoring. Most patients will begin developing symptoms at age 40 and most develop sleep apnea before age 40. But as younger patients start to notice the fatigue, the sleepiness and snoring, or they realize their breathing is interrupted by snoring, many physicians recommend an evaluation of sleep apnea.
 
 
-##What is the difference between obstructive sleep apnea and sleep apnea?
+##What are some common causes of obstructive sleep apnea?
 
 The most common cause of obstructive sleep apnea in adults is obesity and excess weight. Most people with sleep apnea have a body mass index greater than 30. Other factors also may cause sleep apnea, such as war or work-related stress, high blood pressure, depression, folic acid deficiency, thyroid deficiency, stroke, diabetes, anemia and liver or kidney disease. In children, causes of obstructive sleep apnea often include enlarged tonsils or adenoids and dental conditions such as a large overbite. Patients with obstructive sleep apnea may benefit from longer sleep periods.
 
